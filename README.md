@@ -3,7 +3,7 @@
 - 🌱 Discord P4P JOD
 - 💞️ Currently Owner of NZ (NukerZ)
 - 📫 My discord ID : ﹑ 𝙉𝙚𝙊𝙣 ࣪ 𓂃 ･｡ﾟ🖤ﾟ†ᶜˣ#0069
-- DM for P4P / Server Nukes (Only if you have admin in that server)
+- https://discord.gg/codexop
 
 <!---
 NeonGamer0/NeonGamer0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
