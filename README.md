@@ -2,7 +2,7 @@
 - 👀 I’m a Programmer
 - 🌱 Discord P4P JOD
 - 💞️ Currently Owner of NZ (NukerZ)
-- 📫 My discord ID : `ПZ𒁍! NeOn 🥀✨#1716
+- 📫 My discord ID : ﹑ 𝙉𝙚𝙊𝙣 ࣪ 𓂃 ･｡ﾟ🖤ﾟ†ᶜˣ#0069
 - DM for P4P / Server Nukes (Only if you have admin in that server)
 
 <!---
